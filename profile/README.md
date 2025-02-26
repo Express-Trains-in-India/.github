@@ -137,7 +137,7 @@ Absolutely! Use platforms like IRCTC for hassle-free booking.
 ### **5. What amenities are available on high-speed trains?**  
 High-speed trains provide amenities like Wi-Fi, reclining seats, and onboard catering.  
 
-For More Info (https://www.indiain.in/)
+[For More Info](https://www.indiain.in/)
 ---
 
 **Please don’t forget to leave a review.  
